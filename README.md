@@ -7,5 +7,6 @@ input the deal id and your account details for the magic to happen
 check you cart after deal starts boom! product will be added there so that you can checkout From There 
 Hope This WILL BE HELPFULL FOR you 
 do vote up if you like this script
-please contact me if you have any doubts (riyazahamad397@gmail.com)
+please contact me if you have any doubts Contact me
+
 
